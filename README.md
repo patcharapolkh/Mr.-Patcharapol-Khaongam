@@ -1,2 +1,0 @@
-# Mr.-Patcharapol-Khaongam
-I 
